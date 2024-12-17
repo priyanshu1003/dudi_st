@@ -1,1 +1,21 @@
-link to edit https://www.canva.com/design/DAGVybRuoUw/z0KiaUQGdACrKx7awD2KdQ/edit?utm_content=DAGVybRuoUw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+After experiencing the "Breath of Light and Peace", visitors will feel:
+
+Peaceful and Serene: The soothing visuals, calming sounds, and gentle lighting will create a profound sense of inner calm, as if enveloped by warmth and divine light, grounding them in the present moment.
+
+Spiritually Uplifted: Immersed in the serene beauty of the Christmas Nativity and celestial scenes, visitors will feel deeply connected to a sense of hope, renewal, and spiritual tranquility, leaving them emotionally renewed and inspired.
+
+Comforted and Safe: The nurturing atmosphere, filled with soft light and calming sounds, will evoke a deep sense of comfort, making visitors feel secure and at peace, like being in a sacred space.
+
+Emotionally Connected: The tranquil, multi-sensory environment will foster a sense of emotional harmony and well-being, allowing visitors to release stress and connect to a higher sense of peace.
+
+Calm Yet Energized: The balanced mix of relaxation and soothing energy will leave visitors feeling both deeply relaxed and mentally sharp, ready to face the world with clarity and vitality.
+
+Transcendent and Inspired: The peaceful visuals and uplifting soundscapes will help visitors feel spiritually elevated, inspiring a sense of divine connection and hope for the future.
+
+Overall, the experience will leave participants feeling spiritually enriched, emotionally balanced, and at peace, with a renewed sense of calm and inspiration.
+
+
+
+
+
+
